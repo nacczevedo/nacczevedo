@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @nacczevedo, Nathalia Azevedo.
+- 🌎 I’m a Geoscientist. 
+- 🌱 I’m currently learning Data Science for general things, to improve myself and to can apply to my area.
+- 📫 How to reach me:
+- https://www.linkedin.com/in/nathalia-azevedo-587913197/
+-  
